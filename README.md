@@ -8,3 +8,5 @@
 
 ฝากอาจารย์ดูโค้ดด้วยนะครับ ถ้าจะให้พวกผมอธิบายโค้ด คลิปคงยาวมาก อย่างต่ำก็ 3 วัน 
 อย่าเอาไปโชว์ที่ไหนนะครับพวกผมอายเกมแม่งโคตรกาก
+Link VideoReview
+https://drive.google.com/file/d/1yyImyDRJI1-LIFdoTVJmVVwo2UPHfKIK/view?usp=sharing
