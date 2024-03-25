@@ -21,6 +21,6 @@ Fil Package Unity. (gitHub)
 https://github.com/watunyoo15042544/Escape-from-The-Village.git
 
 FileGame EXE.
-
+https://drive.google.com/file/d/1mlkrRm7KgDlLUEPGSXGmPB398k287SXM/view?usp=sharing
 
 
